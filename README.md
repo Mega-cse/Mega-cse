@@ -18,7 +18,6 @@
 
 - 📫 How to reach me **megavardhini1958@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1X_nsMlvJEu39X-214Ig-EALMMHrzGySv/view?usp=drivesdk](https://drive.google.com/file/d/1X_nsMlvJEu39X-214Ig-EALMMHrzGySv/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
